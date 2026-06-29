@@ -1,4 +1,4 @@
-
+Experience enter brainrot heads like never before with vip enter brainrot heads Script, the #1 Script. Includes auto-sell and auto-collect for
 
 
 
